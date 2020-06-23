@@ -15,3 +15,7 @@ Jack fragt ein Jahr später wieder nach Arbeit als Hirte auf dem Brokeback Mount
 * homosexuell
 * verheiratet
 * unglücklich
+
+
+> Jack, ich schwör’s dir …
+
