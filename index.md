@@ -7,3 +7,11 @@ Das Verhältnis zwischen Ennis und Jack entwickelt sich im Laufe der Zeit zu ein
 Ein Kälteeinbruch bedeutet das Ende ihrer Arbeit und scheinbar auch das ihrer intimen Beziehung. Ennis kommt nicht mit dem Abbruch der gemeinsamen Zeit zurecht, weshalb es während des Lagerabbaus zu einer Schlägerei zwischen den beiden kommt, bei der Ennis’ Blut die Ärmel ihrer Hemden befleckt. Wieder im Tal angekommen, trennen sich ihre Wege. Auf Jacks Vorschlag, sich in der nächsten Saison erneut am Brokeback Mountain zu treffen, geht Ennis nicht weiter ein. Als Jack abgefahren ist, bricht Ennis in einer Seitengasse schluchzend an einer Hauswand zusammen.
 
 Jack fragt ein Jahr später wieder nach Arbeit als Hirte auf dem Brokeback Mountain, in der Hoffnung, dass Ennis dasselbe tue. Aber der Schafzüchter Joe Aguirre hatte die beiden im Vorjahr beobachtet und macht Jack unmissverständlich klar, dass er für Männer wie ihn, die ‚sich die Stange halten‘ (Originaltext: “You stemmed the rose”),[3] keine Arbeit hat. 
+
+## Charakter
+
+* zornig
+* tierlieb
+* homosexuell
+* verheiratet
+* unglücklich
